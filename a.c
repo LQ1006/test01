@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+<osidjopaisjdoaiodisadaji<<<<<< HEAD
 asodijasoidjadsjdaosijdasijd
 asodjasijod
 =======
